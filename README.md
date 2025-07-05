@@ -23,4 +23,4 @@
 立即收藏本站，每日回访获取最新日本AV资源。永久免费、无码高清、磁力秒开，是你寻找“日本AV免费”最佳入口。
 
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/kong145/452424 ）</span>
